@@ -18,4 +18,6 @@
  　₊　       minor　enfp 　
  i <3 my friends       　  ![tumblr_a25205d49eaa699a6fc2c17676163217_95d1e858_75](https://github.com/user-attachments/assets/be1ad13f-7680-4d11-a399-150a1a67f70a)
   　　c + h int w me i don't bite 　☆　𓈒　
+
+LOOK UP MY STRAWPAGE 4 MORE INFO!! https://itsnotvirus.straw.page/
  
