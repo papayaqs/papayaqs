@@ -1,6 +1,6 @@
 <div align="center">
  
-$\text{\color{#c23049}“ We are one}$ $\text{\color{#d67c85}beautiful thing . ”}$
+$\text{\color{#c23049} We are one}$ $\text{\color{#d67c85}beautiful thing ! }$
 
 
 
