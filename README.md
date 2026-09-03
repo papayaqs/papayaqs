@@ -16,6 +16,6 @@ $\text{\color{#c23049} We are one}$ $\text{\color{#d67c85}beautiful thing ! }$
 
 <div align="center">
  
-<img src="https://media.discordapp.net/attachments/1084939975738532002/1527779462014439574/127_sin_titulo_20260717174946.png?ex=6a5be700&is=6a5a9580&hm=12b65aa4f3da38674de00e15bf7cd43f1175f8e46a0549854c8d5b9d830f2e50&=&format=webp&quality=lossless&width=575&height=575" /> 
+<img src="https://cdn.discordapp.com/attachments/1077361638862246031/1543777518392447006/Captura_de_pantalla_2026-08-30_013851.png?ex=6a9a0eda&is=6a98bd5a&hm=553284a918fe907433a2602097c33d46bd1d480e0f79b72c4173bce131d05571" /> 
 <div align="center">
 silly crybaby
